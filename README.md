@@ -1,1 +1,0 @@
-# McKinsey-Case-2025
